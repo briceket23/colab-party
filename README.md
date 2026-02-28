@@ -7,7 +7,6 @@
 - Suzan
 - Victor
 - Alvin
-- Monsieur Luk 
-- Damian
-
+- Monsieur Luk
+- Dora
 
