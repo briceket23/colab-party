@@ -4,5 +4,8 @@
 
 - Mike
 - Laurah
-- Monsieur Luk
 - Suzan
+- Victor
+- Alvin
+- Monsieur Luk 
+
